@@ -1,2 +1,0 @@
-# myschool
-siddharth modern academy
